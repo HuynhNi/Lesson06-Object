@@ -1,0 +1,15 @@
+# Object
+# Object
+# Object
+# Object
+# Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
+# Lesson06-Object
